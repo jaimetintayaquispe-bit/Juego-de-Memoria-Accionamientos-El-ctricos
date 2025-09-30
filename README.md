@@ -1,1 +1,1 @@
-# Juego-de-Memoria-Accionamientos-El-ctricos
+# Juego-de-Memoria-Accionamientos-Electricos
